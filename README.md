@@ -1,0 +1,1 @@
+# OPENSUSE-LINUX
